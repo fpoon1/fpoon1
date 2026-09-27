@@ -1,3 +1,2 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=CB3D1C&width=435&lines=%F0%9D%98%A4%F0%9D%98%A2%F0%9D%98%AC%F0%9D%98%A6+%F0%9D%98%AA%F0%9D%98%B4+%F0%9D%98%A8%F0%9D%98%B0%F0%9D%98%B0%F0%9D%98%A5+%5E_%5E+!!)](https://git.io/typing-svg)
-
-<img width="735" height="490" alt="Image" src="https://github.com/user-attachments/assets/adc75034-38e7-43b0-b5c0-e4c470092de4" />
+![Typing SVG](https://readme-typing-svg.demolab.com?font=Dancing+Scrip&weight=100&size=15&pause=1000&color=A2A2A2&width=435&lines=%22%F0%9D%91%87%E2%84%8E%F0%9D%91%96%F0%9D%91%9B%F0%9D%91%98+%F0%9D%91%8E%F0%9D%91%8F%F0%9D%91%9C%F0%9D%91%A2%F0%9D%91%A1+%F0%9D%91%96%F0%9D%91%A1+%F0%9D%91%A1%E2%84%8E%F0%9D%91%96%F0%9D%91%A0+%F0%9D%91%A4%F0%9D%91%8E%F0%9D%91%A6%2C+%F0%9D%91%91%F0%9D%91%8E%F0%9D%91%9F%F0%9D%91%99%F0%9D%91%96%F0%9D%91%9B%F0%9D%91%94.%22)
+<img width="1920" height="1080" alt="Image" src="https://github.com/user-attachments/assets/494323c9-b175-4b39-990d-765523294c53" />
